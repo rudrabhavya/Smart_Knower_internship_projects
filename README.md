@@ -1,0 +1,1 @@
+# Smart_Knower_internship_projects
